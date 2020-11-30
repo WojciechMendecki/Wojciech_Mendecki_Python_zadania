@@ -1,0 +1,1 @@
+# Wojciech_Mendecki_Python_zadania
